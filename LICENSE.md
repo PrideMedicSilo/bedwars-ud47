@@ -1,4 +1,4 @@
-
+secure bedwars Scripts offers the most advanced bedwars Script, with anti-ban and infinite resources. Perfect for dominating any match.
 
 
 
